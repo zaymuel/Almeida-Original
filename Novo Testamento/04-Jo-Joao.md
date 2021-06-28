@@ -40,3 +40,31 @@ _1 A Pessoa de Christo se descreve que elle he a eterna palavra de Deus, verdade
 34. E eu o vi, e tenho dado testemunho, que este he o Filho de Deus.
 35. O seguinte dia, estava outra vez ali Joaõ, e dous de seus discipulos.
 36. E vendo [_por ali_] andar a Jesus, disse: Vedes aqui o cordeiro de Deus.
+37. E ouviraõ [_o_] os dous discipulos fallar, e seguiraõ a Jesus.
+38. E virandose Jesus, e vendo que o seguiaõ, disselhes:
+39. Que buscaes? e elles lhe disseraõ: Rabbi, (que declarado, quer dizer, Mestre) aonde moras?
+40. Disselhes: Vinde, e vede, vieraõ, e víraõ aonde morava, e ficáraõ se com elle aquelle dia: Porque ja era perto das dez horas.
+41. Era Andre, o irmaõ de Simaõ Pedro, hum dos dous que ouviraõ aquillo de Joaõ, e o aviam seguido.
+42. Este achou primeiro a seu irmaõ, e disselhe: Ja achamos a o Messias, que declarado, he o Christo.
+43. E trouxe o a Jesus. E vendo o Jesus, disse: Tu es Simam filho de Jonas, tu seras chamado Cephas, que quer dizer, Pedro.
+44. O dia seguinte quis Jesus ir a Galilea, e achou a Phelippe; a o qual disse: segueme.
+45. E era Phelippe de Bethsaida, a cidade de André e de Pedro.
+46. Phelippe achou a Nathanaël, e disselhe: Achado avemos [_aquelle_] de quem Moyses na ley escreveo, e os Prophetas [_a saber_] a Jesus, o filho de Joseph, de Nazareth.
+47. E disselhe Nathanaël: Pode de Nazareth {av} cousa alguâ boa? disselhe Phelippe: Vem, e vé o.
+48. Vio Jesus vir a si Nathanaël, e disse delle: Vedes aqui hum verdadeiramente Israëlita, em quem engano naõ ha.
+49. E disselhe Nathanaël: Donde me conheces tu a my? respondeo lhe Jesus, e disselhe: Antes que Phelippe te chamára, quando de baixo da figueira estavas, te vi eu a ty.
+50. Respondeo Nathanaël, e disselhe: Rabbi, tu es o filho de Deus, tu es o Rey de Israël.
+51. Respondeo Jesus, e disselhe: Porque te disse: De baixo da figueira te vi, crés: Cousas maiores que estas verás.
+52. E disselhe: Em verdade, em verdade vos digo, que d'aqui em diante vereis aberto o Ceo, e a os Anjos de Deus, sobre o filho do homem sobendo e descendo.
+
+## Capitulo II
+
+_1 O Christo n'as bodas em cana converte a aqua em vinho. 11 Que he começo de seus milagres. 12 Vae a Capernaum. 13 E d'ali a Jerusalem. 14 Lança do templo os que vendiaõ, e os cambiadores. 18 Os Judeos pedem hum sinal, a os quaes propos o desfacimento e alevantamento do templo de seu corpo. 23 Muitos vem a nelle crer. 24 Mas naõ se confiava a si mesmo d'elles, porque os conhecia._
+
+1. E a o terceiro dia se fizeraõ huãs bodas em Cana da Galilea: E estava alia ma~e de Jesus.
+2. E foi tambem convidado Jesus, e seus discipulos a as bodas.
+3. E faltando o vinho, a ma~e de Jesus lhe disse: Vinho naõ tem.
+4. E disselhe Jesus: Que tenho eu com tigo, mulher? Ainda minha hora naõ he vinda.
+5. Disse sua ma~e a os servidores: Fazei tudo quanto elle vos disser.
+6. E estavaõ ali postas seis tinas de agoa, de pedra, conforme a purificaçaõ dos Judeos, que cabia em cada huã dous ou tres almudes.
+7. Di{cortado.}
