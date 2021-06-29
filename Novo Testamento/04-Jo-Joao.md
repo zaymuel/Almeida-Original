@@ -67,4 +67,22 @@ _1 O Christo n'as bodas em cana converte a aqua em vinho. 11 Que he começo de s
 4. E disselhe Jesus: Que tenho eu com tigo, mulher? Ainda minha hora naõ he vinda.
 5. Disse sua ma~e a os servidores: Fazei tudo quanto elle vos disser.
 6. E estavaõ ali postas seis tinas de agoa, de pedra, conforme a purificaçaõ dos Judeos, que cabia em cada huã dous ou tres almudes.
-7. Di{cortado.}
+7. Disselhes Jesus: Enchei estas tinas de agoa, e enchéraõ as até riba.
+8. E disselhes: Tirae agora, e apresentae a a o Mestresala. E apresentaraõ lha.
+9. E como o Mestresala gostou a agoa feita vinho (e naõ sabia d'onde era, porem os servidores, que a agoa aviaõ tirado, o sabiaõ) chamou o Mestresala a o Esposo.
+10. E disselhe: Todo homem poem primeiro o bom vinho, e quando {Ja..m} bem bebido, entonces o que he peior: [_Mas_] tu guardaste o bom vinho até agora.
+11. Este principio de sinaes fez Jesus em Cana de Galilea, e manifestou sua gloria, e créraõ seus discipulos nelle.
+12. Despois disto descendeo a Capernaum, elle e sua ma~e, e seus irmaõs, e seus discipulos, e estiveraõ ali naõ muitos dias.
+13. E estava perto a Paschoa dos Judeos, e sobio jesus a Hierusalem.
+14. E achou no Templo a os que vendiaõ boys, e ovelhas, e pombas, e a os cambiadores [_ali_] assentados. 
+15. E feito hum açoute de cordeis, lançou os a todos do Templo, e a as ovelhas, e a os boys; e espalhou o dinheiro dos cambiadores, e trastornou as mesas.
+16. E a os que vendiaõ as pombas disse: tirae d'aqui isto e naõ façaés casa de (a)[Ou, mercado.] venda, a casa de meo Pae. 
+17. Entonces se lembráraõ seus discipulos, que estava escrito: O zelo de tua casa me tragou.
+18. E responderaõ os Judeos, e disseraõ lhe: Que sinalnos mostras tu para taes cousas fazeres?
+19. Respondeo Jesus, e disselhes: Desfazei este Templo, e em tres dias o levantarei.
+20. Disseraõ pois os Judeos: Em quarenta e seis annos foi este Templo edificado, e levantalohas tu em tres dias?
+21. Mas elle fallava [_isto_] do Templo de seu corpo.
+22. Portanto, quando resuscitou dos mortos, se lembráraõ seus discipulos que isto lhes avia dito; e créraõ á Escritura, e á palavra que Jesus lhes dissera.
+23. E estando elle em Hierusalem pola Paschoa, no dia da festa, créraõ muitos em seu nome, vendo os sinaes que fazia.
+24. Mas o mesmo Ejsus se naõ confiava a si mesmo delles, porque a todos os conhecia.
+25. E naõ necessitava de que alguem do hom~e lhe desse testemunho, porque bem savia elle o que no homem avia.
