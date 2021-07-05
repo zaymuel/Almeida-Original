@@ -74,9 +74,9 @@ _1 O Christo n'as bodas em cana converte a aqua em vinho. 11 Que he começo de s
 11. Este principio de sinaes fez Jesus em Cana de Galilea, e manifestou sua gloria, e créraõ seus discipulos nelle.
 12. Despois disto descendeo a Capernaum, elle e sua ma~e, e seus irmaõs, e seus discipulos, e estiveraõ ali naõ muitos dias.
 13. E estava perto a Paschoa dos Judeos, e sobio jesus a Hierusalem.
-14. E achou no Templo a os que vendiaõ boys, e ovelhas, e pombas, e a os cambiadores [_ali_] assentados. 
+14. E achou no Templo a os que vendiaõ boys, e ovelhas, e pombas, e a os cambiadores [_ali_] assentados.
 15. E feito hum açoute de cordeis, lançou os a todos do Templo, e a as ovelhas, e a os boys; e espalhou o dinheiro dos cambiadores, e trastornou as mesas.
-16. E a os que vendiaõ as pombas disse: tirae d'aqui isto e naõ façaés casa de (a)[Ou, mercado.] venda, a casa de meo Pae. 
+16. E a os que vendiaõ as pombas disse: tirae d'aqui isto e naõ façaés casa de (a)[Ou, mercado.] venda, a casa de meo Pae.
 17. Entonces se lembráraõ seus discipulos, que estava escrito: O zelo de tua casa me tragou.
 18. E responderaõ os Judeos, e disseraõ lhe: Que sinalnos mostras tu para taes cousas fazeres?
 19. Respondeo Jesus, e disselhes: Desfazei este Templo, e em tres dias o levantarei.
