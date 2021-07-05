@@ -86,3 +86,18 @@ _1 O Christo n'as bodas em cana converte a aqua em vinho. 11 Que he começo de s
 23. E estando elle em Hierusalem pola Paschoa, no dia da festa, créraõ muitos em seu nome, vendo os sinaes que fazia.
 24. Mas o mesmo Ejsus se naõ confiava a si mesmo delles, porque a todos os conhecia.
 25. E naõ necessitava de que alguem do hom~e lhe desse testemunho, porque bem savia elle o que no homem avia.
+
+## Capitulo III
+
+_1 Christo ensina a Nicodemus a cerca necessidade e maneira da regeneraçaõ. 14 Ensina com exemplo da serpente que he necessario que elle seja levantado pera salvar os que n'elle crem. 22 Christo e mais Joaõ bautizaõ no mesmo tempo. 25 Discipulos de Joaõ se indignaõ que todos venhaõ a Christo. 27 Por esta ocasiaõ ensina os Joaõ, ostendendo qual differença ha entre sy, e Christo. 36 E que receberaõ assi os fieis como os infieis._
+
+1. E avia hum homem dos Phariseos, que se chamava Nicodemus, principe dos Judeos.
+2. Este veio a Jesus de noite, e disselhe: Rabbi, bem sabemos que de Deus tens vindo por Mestre: Porque ninguem pode fazer estes sinaes que tu fazes, se Deus com elle naõ for.
+3. Respondeo Jesus e disselhe: Em verdade, em verdade, te digo, que aquelle que outra vez naõ nacer, naõ pode ver o reyno de Deus.
+4. Disselhe Nicodemus: Como pode o homem nacer, sendo ja velho? por ventura pode entrar outra vez no ventre de sua ma~e, e nacer?
+5. Respondeo Jesus: Em verdade, em verdade, te digo, que aquelle que de agoa e de Espirito naõ nacer, naõ pode entrar no Reyno de Deus.
+6. O que he nacido de carne, carne he; e o que he nacido de Espirito, espirito he.
+7. Naõ te maravilhes, de que te disse: Necessario vos he nacer outra vez:
+8. O vento a d'onde que sopra, e ouves seu soido; podem naõ saves nem d'onde vem, nem pera onde vae; assi he todo aquelle que he nacido de Espirito.
+9. Respondeo Nicodemus, e disselhe: Como se pode isto fazer?
+10. Respondeo Jesus, e disselhe: Tu es Mestre de Israël, e nem isto sabes!
