@@ -112,3 +112,18 @@ _1 Christo ensina a Nicodemus a cerca necessidade e maneira da regeneraçaõ. 14
 19. E {ilegível - _esta_} he a condenaçaõ, que a luz veio a o mundo, e os homens amáraõ mais as trevas do que a luz; porque eraõ más suas obras.
 20. Porque todo aquelle que obra mal, aborrece a luz, e naõ vem á luz, porque suas obras naõ sejaõ redarguidas.
 21. Mas quem obra verdade, vem á luz, pera que suas obras sejaõ manifestas, que saõ feitas em Deus.
+22. Passado isto, veio Jesus com seus discipulos a terra de Judea, e estava ali com elles, e bautizava.
+23. E bautizava também Joaõ em Enon, junto a Salim; porque avia ali muitas agoas, e vinhaõ ali, e eraõ bautizados.
+24. Porque ainda Joaõ naõ avia sido levado á prisaõ.
+25. E ouve questaõ entre os discipulos de Joaõ, e os Judeos, acerca da purificaçaõ.
+26. E vieraõ a Joaõ, e disseraõ lhe: Rabbi, aquelle que comtigo estava da outra banda do Jordaõ, do qual tu deste testemunho, ves aqui esta bautizando, e todos vem a elle:
+27. Respondeo Joam, e disse: Naõ pode ó hom~e cousa alguã receber, se d'o Ceo lhe naõ for dado.
+28. Vosoutros mesmo me sois testemunhas, que disse: Eu naõ sou o Chisto; mas que diante delle sou enviado.
+29. Aquelle que tem a Esposa, he o Esposo; mas o amigo do Esposo, que lhe assiste, e o ouve, gozase grandemente da voz do Esposo; assi pois ja este meu gozo he cumprido.
+30. A elle convem crecer, e a my diminuir.
+31. Aquelle que de riba vem, sobre todos he; aquelle que he da terra, terreno he, e cousas terrenas falla: Aquelle que vem do Ceo, sobre todos he.
+32. E aquillo que vio, e ouvio, isso testifica; e ninguem recebe seu testemunho.
+33. Aquelle que seu testemunho recebeo, esse sellou que Deus he verdadeiro.
+34. Porque aquelle que Deus enviou, as palavras de Deus falla; porque naõ [_lhe_] dá Deus o Espirito por medida.
+35. O Pae ama a o Filho, e todas as cousas deu em sua maõ.
+36. Aquelle que no Filho cre, tem vida eterna; mas aquelle que a o Filho he incredulo, naõ verá a vida, mas a ira de Deus permanece sobre elle.
