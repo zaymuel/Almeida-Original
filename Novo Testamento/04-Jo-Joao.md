@@ -10,7 +10,7 @@ _1 A Pessoa de Christo se descreve que elle he a eterna palavra de Deus, verdade
 4. Nella estava a vida, e a vida era a luz dos hom~es.
 5. E a luz nas trevas resplandece: Porem as trevas naõ a comprehendéraõ.
 6. Houve hum homem enviado de Deus, que tinha por nome Joaõ.
-7. Este veio por testemunho, pera que desse testemunho {_ilegível_} pera que todas por elle cressem.
+7. Este veio por testemunho, pera que desse testemunho {ilegível - _da luz_} pera que todas por elle cressem.
 8. Naõ era elle a luz mas [_era enviado._] peraque desse testemunho da luz.
 9. Este era a luz verdadeira, que a todo home, que neste mundo vem, alumia.
 10. No mundo estava, e por elle foi feito o mundo, e o mundo o naõ conheceo.
@@ -98,6 +98,17 @@ _1 Christo ensina a Nicodemus a cerca necessidade e maneira da regeneraçaõ. 14
 5. Respondeo Jesus: Em verdade, em verdade, te digo, que aquelle que de agoa e de Espirito naõ nacer, naõ pode entrar no Reyno de Deus.
 6. O que he nacido de carne, carne he; e o que he nacido de Espirito, espirito he.
 7. Naõ te maravilhes, de que te disse: Necessario vos he nacer outra vez:
-8. O vento a d'onde que sopra, e ouves seu soido; podem naõ saves nem d'onde vem, nem pera onde vae; assi he todo aquelle que he nacido de Espirito.
+8. O vento a d'onde quer sopra, e ouves seu soido; porem naõ sabes nem d'onde vem, nem pera onde vae; assi he todo aquelle que he nacido de Espirito.
 9. Respondeo Nicodemus, e disselhe: Como se pode isto fazer?
 10. Respondeo Jesus, e disselhe: Tu es Mestre de Israël, e nem isto sabes!
+11. Em verdade, em verdade te digo, que o que sabemos, isso fallamos; e o que visto temos, isso testificamos; e naõ recebeis nosso testemunho.
+12. Se avendo vos eu dito cousas terreaes, vos as naõ credes; como crereis se vos disser as celestiaes?
+13. E ninguem a o Ceo sobio, senaõ o que d'o Ceo descendeo; [_a saber_] o Filho d'o homem, que está no Ceo.
+14. E como Moyses levantou a serpente no deserto, assi he necessario que o Filho do homem seja levantado.
+15. Peraque todo aquelle que nelle crer, naõ pereça, mas alcance a vida eterna.
+16. Porque de tal maneira amou Deus a o mundo, que deu a seu Filho unigenito, pera que todo aquelle que nelle crer, naõ pereça mas alcance a vida eterna.
+17. Porque naõ mandou Deus a seu Filho a o mundo, pera que a o mundo condene; mas peraque o mundo seja salvo por elle.
+18. Quem nelle crer, naõ he condenado; mas quem naõ cre, ja está condenado; porque naõ creo no Nome do unigenito Filho de Deus.
+19. E {ilegível - _esta_} he a condenaçaõ, que a luz veio a o mundo, e os homens amáraõ mais as trevas do que a luz; porque eraõ más suas obras.
+20. Porque todo aquelle que obra mal, aborrece a luz, e naõ vem á luz, porque suas obras naõ sejaõ redarguidas.
+21. Mas quem obra verdade, vem á luz, pera que suas obras sejaõ manifestas, que saõ feitas em Deus.
