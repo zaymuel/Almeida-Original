@@ -1,6 +1,6 @@
 # O SANCTO EUANGELHO De nosso Senhor JESU CHRISTO SEGUNDO S. JOAÕ
 
-## Capitulo I
+## Capitulo I.
 
 _1 A Pessoa de Christo se descreve que elle he a eterna palavra de Deus, verdadeiro Deus, criador de tudo, a vida e a luz do hom~es, principalmente dos fieis. 14 Que esta palavra se encarnou. 15 O Joaõ bautista da testemunho d'elle. 23 Como tambem de sy mesmo. 29 Declara que Christo he o cordeiro, e o filho de Deus. 32 E que lhe ficou notorio pelo sinal do Espirito Sancto. 37 Dous discipulos de Joaõ por isso seguem a Christo. 41 Andreas hum delles traze tambem a Simaõ seu irmaõ. 44 Christo chama a Philippe e a Nathanael, e louva a sinceridade delle._
 
@@ -57,7 +57,7 @@ _1 A Pessoa de Christo se descreve que elle he a eterna palavra de Deus, verdade
 51. Respondeo Jesus, e disselhe: Porque te disse: De baixo da figueira te vi, crés: Cousas maiores que estas verás.
 52. E disselhe: Em verdade, em verdade vos digo, que d'aqui em diante vereis aberto o Ceo, e a os Anjos de Deus, sobre o filho do homem sobendo e descendo.
 
-## Capitulo II
+## Capitulo II.
 
 _1 O Christo n'as bodas em cana converte a aqua em vinho. 11 Que he começo de seus milagres. 12 Vae a Capernaum. 13 E d'ali a Jerusalem. 14 Lança do templo os que vendiaõ, e os cambiadores. 18 Os Judeos pedem hum sinal, a os quaes propos o desfacimento e alevantamento do templo de seu corpo. 23 Muitos vem a nelle crer. 24 Mas naõ se confiava a si mesmo d'elles, porque os conhecia._
 
@@ -87,7 +87,7 @@ _1 O Christo n'as bodas em cana converte a aqua em vinho. 11 Que he começo de s
 24. Mas o mesmo Ejsus se naõ confiava a si mesmo delles, porque a todos os conhecia.
 25. E naõ necessitava de que alguem do hom~e lhe desse testemunho, porque bem savia elle o que no homem avia.
 
-## Capitulo III
+## Capitulo III.
 
 _1 Christo ensina a Nicodemus a cerca necessidade e maneira da regeneraçaõ. 14 Ensina com exemplo da serpente que he necessario que elle seja levantado pera salvar os que n'elle crem. 22 Christo e mais Joaõ bautizaõ no mesmo tempo. 25 Discipulos de Joaõ se indignaõ que todos venhaõ a Christo. 27 Por esta ocasiaõ ensina os Joaõ, ostendendo qual differença ha entre sy, e Christo. 36 E que receberaõ assi os fieis como os infieis._
 
@@ -128,7 +128,7 @@ _1 Christo ensina a Nicodemus a cerca necessidade e maneira da regeneraçaõ. 14
 35. O Pae ama a o Filho, e todas as cousas deu em sua maõ.
 36. Aquelle que no Filho cre, tem vida eterna; mas aquelle que a o Filho he incredulo, naõ verá a vida, mas a ira de Deus permanece sobre elle.
 
-## Capitulo IV
+## Capitulo IV.
 
 _1 Christo faz e bautiza mais discipulos em Judea do que Joaõ. 3 Foi {ilegivel} a Galilea passando por Samaria, e sendo cançado se assentou ali a par da {huajante / (boa/huã) fonte}. 7 Sua pratica com a Samaritana. 20 Informa a do verdadeiro modo de adorar. 26 E declara que elle era o Messias prometido. 28 Ella disto da parte a os Samaritanos que sahiraõ e vieraõ a elle. 31 Declara a seus discipulos qual era sua principal comida, e que o tempo da espiritual sega estava presente. 39 Muitos Samaritanos crem nelle assi pola palavra da mulher como principalmente pola propria ouvida. 43 Se torna a Cana de Galilea, aonde deu saude a o filho de hum regulo._
 
@@ -186,3 +186,9 @@ _1 Christo faz e bautiza mais discipulos em Judea do que Joaõ. 3 Foi {ilegivel}
 52. Entonces elle lhes perguntou, a que hora coméçara a estar melhor? e disseraõ lhe: Hont~e a as sete o deixou a febre.
 53. O pae, entonces, entendeo que aquella [_era_] mesma hora, quando Jesus lhe disse: Teu filho vive. E creo elle e toda sua casa:
 54. Este segundo sinal tornou Jesus a fazer quando veio de Judea a Galilea.
+
+## Capitulo V.
+
+_1 Christo se {tornou?} a Jerusalem e Sara em Sabado a hum hom~e que avia estado trinta e oito annos enfermo. 8 A quem, tomando elle sua cama conforme a palavra do Senhor, os Judeos reprendem. 16 por isso procuraõ de matar a Christo como que quebrantava o Sabado, e fazia se igual a Deus. 19 Christo defende seu feito, e testifica que em todas suas obras he igual a seu Pae, como em dar a vida. 22 Em julgar. 23 em receber divina honra. 24 Em salvar. 25 E em resuscitar os mortos. 31 Remite os a o testemunho de seu pae. 33 De Joaõ. 36 E de suas marabilhas. 38 Reprende a incredulidade dos Judeos. 39 Remite os a as Escrituras. 45 Ate as de Moyses._
+
+1. Despois destas cousas, era hum dia de festa dos Judeos e sobio Jesus a Hierusalem.
