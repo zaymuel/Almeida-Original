@@ -192,3 +192,49 @@ _1 Christo faz e bautiza mais discipulos em Judea do que Joaõ. 3 Foi {ilegivel}
 _1 Christo se {tornou?} a Jerusalem e Sara em Sabado a hum hom~e que avia estado trinta e oito annos enfermo. 8 A quem, tomando elle sua cama conforme a palavra do Senhor, os Judeos reprendem. 16 por isso procuraõ de matar a Christo como que quebrantava o Sabado, e fazia se igual a Deus. 19 Christo defende seu feito, e testifica que em todas suas obras he igual a seu Pae, como em dar a vida. 22 Em julgar. 23 em receber divina honra. 24 Em salvar. 25 E em resuscitar os mortos. 31 Remite os a o testemunho de seu pae. 33 De Joaõ. 36 E de suas marabilhas. 38 Reprende a incredulidade dos Judeos. 39 Remite os a as Escrituras. 45 Ate as de Moyses._
 
 1. Despois destas cousas, era hum dia de festa dos Judeos e sobio Jesus a Hierusalem.
+2. E estava em Hierusalem, [_á porta_] das ovelhas h~u tanque, que em Hebreo se chama Bethesda, o qual tem cinco alpendres.
+3. Nestes estava deitada grande multidaõ de enfermos, cegos, mancos, deffecados, que estavaõ esperando o movimento da agoa.
+4. Porque hum Anjo descendia a certo tempo a o tanque, e revolvia a agoa; e o que primeiro descendia no tanque, depois do movimento da agoa, ficava saõ de qualquer enfermidade que tivesse.
+5. E estava ali hum homem, que avia estado trinta e oito annos enfermo.
+6. Vendo Jesus a este deitado, e entendendo que ja avia muito tempo que estava deitado, disselhe: Queres ser saõ.
+7. E o enfermo lhe respondeo: Senhor, naõ tenho homem nenhum que, quando a agoa se revolve, me meta no tanque: Porque entre tanto que eu venho ja outro antes de my tem descendido.
+8. Disselhe Jesus: Levantate, toma tua cama e anda.
+9. E logo aquelle homem foi saõ; e tomou sua cama, e hiase. E era Sabado aquelle dia.
+10. Entonces os Judeos diziaõ a aquelle que avia sido sárado: Sabado he, naõ te he licito levar tua cama.
+11. Respondeulhes elle: Aquelle que me sarou, esse mesmo me disse: Toma tua cama, e anda.
+12. Perguntaraõ lhe entonces: Quem he o que te disse: Toma tua cama e anda?
+13. E o que avia sido sarado naõ sabia quem fosse, porque Jesus se tinha retirado da companha que estava naquelle lugar.
+14. Despois achou o Jesus no templo e disselhe; Vesaqui ja estas saõ; naõ peques mais, porque te naõ suceda alguã cousa peior.
+15. Foi [_entaõ_] aquelle homem, e deu aviso a os Judeos, que Jesus era o que o tinha sarado.
+16. E por esta causa perfeguiaõ os Judeos a Jesus. E procuravaõ matalo; porque fazia estas cousas em Sabado.
+17. E Jesus lhes respondeo: Meu Pae ate agora efta obrando, e eu [_tambem_] obro.
+18. Porisso tanto mais procuravaõ ainda os Judeos matalo; porque naõ só quebrantava o Sabado, mas ainda tambem dizia que Deus era seu proprio Pae, fazendose igual a Deus.
+19. Respóndeo pois Jesus, e disselhes: Em verdade, em verdade vos digo, que naõ pode o Filho cousa alguã fazer de per si mesmo, se o naõ vir fazer a o Pae: Porque tudo quanto elle faz, o faz tambem semelhantemente o Filho.
+20. Porque o Pae ama a o Filho, e todas as cousas que faz, lhe mostra: E maiores obras que estas lhe mostrará, para que vosoutros vos maravilheis.
+21. Porque assi como a Pae resuscita a os mortos, e lhes da vida; assi tambem o Filho, a os que quer, dá vida.
+22. Porque o Pae, a ninguem julga; mas todo o juizo deo a o Filho.
+23. Pera que todos honrem a o Filho, assi como honraõ a o Pae; quem naõ honra a o Filho, naõ honra a o Pae, que o enviou.
+24. Em verdade, em verdade, vos digo, que quem ouve minha palavra, e cre a o que me enviou, tem vida eterna, e não virá a condenação; mas passou da morte á vida.
+25. Em verdade, em verdade vos digo, que virá hora, e agora he, quando os mortos ouviráõ a voz do Filho de Deus; e os que a ouvirem, viviráõ.
+26. Porque assi como o Pae tem vida em si mesmo, assi deo tambem a o Filho que tivesse vida em si mesmo.
+27. E tambem lhe deu poder para fazer juizo, por em quanto he o Filho do homem.
+28. Naõ vos maravilheis disto: Porque virá hora, quando todos os que estaõ em os sepulcros ouviraõ sua voz.
+29. E os que fizeraõ bem, sairáõ â resurreiçaõ de vida; mas os que fizéraõ mal, à ressurreiçaõ de condenaçaõ.
+30. Naõ posso eu de per my mesmo fazer alguã cousa. assi como ouço, julgo; e meo juizo he justo, porque naõ busco minha vontade, mas a vontade do Pae que me enviou.
+31. Se eu dou testemunho de my mefmo, meo testemunho naõ he verdadeiro.
+32. Outro he o que de my da testemunho, e sei que o testemunho que de my {_deu?_} he verdadeiro.
+33. Vos outros enviastes a Joaõ, e elle deu testemunho da verdade.
+34. Mas eu naõ tomo testemunho de homem: Mas digo isto, pera que vos salveis.
+35. Elle era candea que ardia e alumiava: E vosoutros vos quisestes por hum pouco de tempo alegrar em sua luz.
+36. Mas eu tenho maior testemunho que o de Joaõ, porque as obras que o Pae me deu que cumprisse, as mesmas obras que eu faço, dam testemunho de my, que o Pae me tenha enviado.
+37. E o Pae que me enviou, elle mesmo deu testemunho de my. Nem nunca ouvistes sua voz, nem vistes seu parecer:
+38. Nem tendes sua palavra em vosoutros permanecente; porque a o que elle enviou, a esse vousoutros naõ credes.
+39. Esquadrinhae as Escrituras; poque a vousoutros vos parece que nellas tendes a vida eterna, e ellas saõ as que de my dam testemunho.
+40. E naõ quereis vir a my, pera que tenhaes vida.
+41. honra de homens naõ aceito.
+42. Mas bem vos conheço, que naõ tendes amor de Deus em vos mesmo.
+43. Eu em nome de meo Pae vim, e vosoutros me naõ recebeis; se outro vier em seu proprio nome, a esse recebereis.
+44. Como podeis vosoutros crer, pois aceitaes a honra os huns dos outros? e naõ buscaes a honra que de so Deus vem?
+45. Naõ cuideis que diante do Pae vos aja eu de acusar: Moyses, em quem vosoutros esperaes, he, o que vos acusa.
+46. Porque se vosoutros a Moyses créreis, tamb~e a my me crerieis: Porque demy elle escreveu.
+47. E se a seus escritos naõ credes, como a minhas palavras crereis?
