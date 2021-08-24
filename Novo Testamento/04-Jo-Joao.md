@@ -238,3 +238,30 @@ _1 Christo se {tornou?} a Jerusalem e Sara em Sabado a hum hom~e que avia estado
 45. Naõ cuideis que diante do Pae vos aja eu de acusar: Moyses, em quem vosoutros esperaes, he, o que vos acusa.
 46. Porque se vosoutros a Moyses créreis, tamb~e a my me crerieis: Porque demy elle escreveu.
 47. E se a seus escritos naõ credes, como a minhas palavras crereis?
+
+## Capitulo VI.
+
+_1 Christo com cinco paens e dous peixes farta a cinco mil homens. 14 QUerendo elles por isso fazelo Rey, se retira d'elles. 16 Anda a noite sobre mar e vem a seus discipulos. 22 A companha vem a Capernaum em busca de Jesus, e o achaõ. 26 Amoesta os que buscassem pela fe hua comida que naõ perece. 41 Murmuraõ d'isso os Judeoss. 43 Respondendo Jesus que a fé so de seu Pae vem, ensina que sua carne he a verdadeira ocmida e seu sangue a verdadeira bebida pera a vida eterna. 59 Do que muitos se escandalizaõ. 61 Por isso explica Christo suas palavras. 66 Muitos de seus discipulos o deixaõ. 67 Porem os doze se ficaõ com elle, e confessaõ que elle tem as palavras da vida. 70 {Dura} que hum d'elles era diabo._
+
+1. Passadas estas cousas, passouse Jesus da outra banda do mar de Galilea, que he o [_mar_] de Tiberias.
+2. E seguia o grande multidaõ; porque viaõ os sinaes que fazia n'os enfermos.
+3. Sobio pois Jesus a hum monte, e assentouse ali com seus discipulos.
+4. E ja era perto da Paschoa, o dia da festa dos Judeos.
+5. E levantando Jesus os olhos, e vendo que tinha vindo a elle grande multidaõ, disse a Phelippe: D'onde compraremos pam, pera que estes comaõ?
+6. (Mas isto dizia atentando o; porque bem sabia elle o que avia de fazer.)
+7. Respondeulhe Phelippe: Duzentos dinheiros de paõ lhes naõ bastaraõ, peraque cada hum delles tome hum pouco.
+8. Disselhe hum de seus discipulos [_a saber_] Andre, irmaõ de Simaõ Pedro:
+9. Hum menino está aqui, que tem cinco paens de cevada, e dous peixezinhos; mas que he isto entre tantos?
+10. Entonces Jesus disse: Fazei assentar a gente; e avia muita erva n'aquelle lugar: e assentaraõ se como numero de cinco mil varoens.
+11. E tomou Jesus aquelles paens, e avendo dado graças, repartio os a os discipulos, e os discipulos a os que estavaõ assentados; assi mesmo dos peixes quanto queriaõ.
+12. E como ja estiveraõ fartos, disse a seus discipulos: Recolhei os pedaços que tem sobejado, pera que nada se perca.
+13. Recolhéraõ os pois, e enchéraõ doze cestos dos pedaços d'os cinco paens de cevada, que sobejáraõ a os que aviaõ comido.
+14. Vendo aquelles homens, entonces, o sinal que Jesus tinha feito, disseraõ: Este he verdadeiramente o Propheta que a o mundo avia de vir.
+15. E entendendo Jesus que aviaõ de vir, pera o arrebatar, e fazelo Rey, tornou se elle so a retirar a o monte.
+16. E como ja se fez tarde, descendéraõ seus discipulos a o mar.
+17. E entrando em hum barco, passaraõ da outra banda do mar, até Capernaum: e era ja escuro; e ainda Jesus naõ tinha vindo a elles.
+18. E o mar se começou a levantar com h~u grande pé de vento.
+19. E avendo ja navegado ate vinte e cinco, ou trinta estadios, viraõ a Jesus que vinha andando sobre o mar, e se vinha chegando a o barco, e ouveraõ medo.
+20. Mas elle lhes disse: Eu sou, naõ tenhaes medo.
+21. E elles o receberaõ de boa vontade no barco; e logo o barco chegou á terra a onde hiaõ.
+22. O dia seguinte, vendo a companha que estava da outra banda do mar, que naõ avia ali mais que hum barquinho, em que seus discipulos aviaõ entrado, e que Jesus naõ entrára com seus discipulos naquelle barquinho, mas seos discipulos sós se aviaõ ido:
