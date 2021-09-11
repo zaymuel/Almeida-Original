@@ -90,42 +90,42 @@ _1 O Christo n'as bodas em cana converte a aqua em vinho. 11 Que he começo de s
 
 _1 Christo ensina a Nicodemus a cerca necessidade e maneira da regeneraçaõ. 14 Ensina com exemplo da serpente que he necessario que elle seja levantado pera salvar os que n'elle crem. 22 Christo e mais Joaõ bautizaõ no mesmo tempo. 25 Discipulos de Joaõ se indignaõ que todos venhaõ a Christo. 27 Por esta ocasiaõ ensina os Joaõ, ostendendo qual differença ha entre sy, e Christo. 36 E que receberaõ assi os fieis como os infieis._
 
-1. E avia hum homem dos Phariseos, que se chamava Nicodemus, principe dos Judeos.
+1. E avia hum homem dos Phariseos, que se çhamava Nicodemus, prinçipe dos Judeos.
 2. Este veio a Jesus de noite, e disselhe: Rabbi, bem sabemos que de Deus tens vindo por Mestre: Porque ninguem pode fazer estes sinaes que tu fazes, se Deus com elle naõ for.
-3. Respondeo Jesus e disselhe: Em verdade, em verdade, te digo, que aquelle que outra vez naõ nacer, naõ pode ver o reyno de Deus.
-4. Disselhe Nicodemus: Como pode o homem nacer, sendo ja velho? por ventura pode entrar outra vez no ventre de sua ma~e, e nacer?
-5. Respondeo Jesus: Em verdade, em verdade, te digo, que aquelle que de agoa e de Espirito naõ nacer, naõ pode entrar no Reyno de Deus.
-6. O que he nacido de carne, carne he; e o que he nacido de Espirito, espirito he.
-7. Naõ te maravilhes, de que te disse: Necessario vos he nacer outra vez:
-8. O vento a d'onde quer sopra, e ouves seu soido; porem naõ sabes nem d'onde vem, nem pera onde vae; assi he todo aquelle que he nacido de Espirito.
+3. Respondeo Jesus e disselhe: Em verdade, em verdade, te digo, que aquelle que outra vez naõ naçer, naõ pode ver o reyno de Deus.
+4. Disselhe Nicodemus: Como pode o homem naçer, sendo ja velho? por ventura pode entrar outra vez no ventre de sua ma~e, e naçer?
+5. Respondeo Jesus: Em verdade, em verdade, te digo, que aquelle que de agoa e de Espirito naõ naçer, naõ pode entrar no Reyno de Deus.
+6. O que he naçido de carne, carne he; e o que he naçido de Espirito, espirito he.
+7. Naõ te maravilhes, de que te disse: Neçessario vos he naçer outra vez:
+8. O vento a d'onde quer sopra, e ouves seu soido; porem naõ sabes nem d'onde vem, nem pera onde vae; assi he todo aquelle que he naçido de Espirito.
 9. Respondeo Nicodemus, e disselhe: Como se pode isto fazer?
 10. Respondeo Jesus, e disselhe: Tu es Mestre de Israël, e nem isto sabes!
-11. Em verdade, em verdade te digo, que o que sabemos, isso fallamos; e o que visto temos, isso testificamos; e naõ recebeis nosso testemunho.
+11. Em verdade, em verdade te digo, que o que sabemos, isso fallamos; e o que visto temos, isso testificamos; e naõ reçebeis nosso testemunho.
 12. Se avendo vos eu dito cousas terreaes, vos as naõ credes; como crereis se vos disser as celestiaes?
-13. E ninguem a o Ceo sobio, senaõ o que d'o Ceo descendeo; [_a saber_] o Filho d'o homem, que está no Ceo.
-14. E como Moyses levantou a serpente no deserto, assi he necessario que o Filho do homem seja levantado.
-15. Peraque todo aquelle que nelle crer, naõ pereça, mas alcance a vida eterna.
+13. E ninguem a o Çeo sobio, senaõ o que d'o Çeo desçendeo; [_a saber_] o Filho d'o homem, que está no Çeo.
+14. E como Moyses levantou a serpente no deserto, assi he neçessario que o Filho do homem seja levantado.
+15. Peraque todo aquelle que nelle crer, naõ pereça, mas alcançe a vida eterna.
 16. Porque de tal maneira amou Deus a o mundo, que deu a seu Filho unigenito, pera que todo aquelle que nelle crer, naõ pereça mas alcance a vida eterna.
 17. Porque naõ mandou Deus a seu Filho a o mundo, pera que a o mundo condene; mas peraque o mundo seja salvo por elle.
 18. Quem nelle crer, naõ he condenado; mas quem naõ cre, ja está condenado; porque naõ creo no Nome do unigenito Filho de Deus.
-19. E {ilegível - _esta_} he a condenaçaõ, que a luz veio a o mundo, e os homens amáraõ mais as trevas do que a luz; porque eraõ más suas obras.
-20. Porque todo aquelle que obra mal, aborrece a luz, e naõ vem á luz, porque suas obras naõ sejaõ redarguidas.
+19. E esta he a condenaçaõ, que a luz veio a o mundo, e os homens amáraõ mais as trevas do que a luz; porque eraõ más suas obras.
+20. Porque todo aquelle que obra mal, aborreçe a luz, e naõ vem á luz, porque suas obras naõ sejaõ redarguidas.
 21. Mas quem obra verdade, vem á luz, pera que suas obras sejaõ manifestas, que saõ feitas em Deus.
-22. Passado isto, veio Jesus com seus discipulos a terra de Judea, e estava ali com elles, e bautizava.
+22. Passado isto, veio Jesus com seus disçipulos a terra de Judea, e estava ali com elles, e bautizava.
 23. E bautizava também Joaõ em Enon, junto a Salim; porque avia ali muitas agoas, e vinhaõ ali, e eraõ bautizados.
 24. Porque ainda Joaõ naõ avia sido levado á prisaõ.
-25. E ouve questaõ entre os discipulos de Joaõ, e os Judeos, acerca da purificaçaõ.
+25. E ouve questaõ entre os disçipulos de Joaõ, e os Judeos, açerca da purificaçaõ.
 26. E vieraõ a Joaõ, e disseraõ lhe: Rabbi, aquelle que comtigo estava da outra banda do Jordaõ, do qual tu deste testemunho, ves aqui esta bautizando, e todos vem a elle:
 27. Respondeo Joam, e disse: Naõ pode ó hom~e cousa alguã receber, se d'o Ceo lhe naõ for dado.
-28. Vosoutros mesmo me sois testemunhas, que disse: Eu naõ sou o Chisto; mas que diante delle sou enviado.
-29. Aquelle que tem a Esposa, he o Esposo; mas o amigo do Esposo, que lhe assiste, e o ouve, gozase grandemente da voz do Esposo; assi pois ja este meu gozo he cumprido.
-30. A elle convem crecer, e a my diminuir.
+28. Vosoutros mesmos me sois testemunhas, que disse: Eu naõ sou o Chisto; mas que diante delle sou enviado.
+29. Aquelle que tem a Esposa, he o Esposo; mas o amigo do Esposo, que lhe assiste, e o ouve, gozase grandemente da voz do Esposo; assi pois _ja_ este meu gozo he cumprido.
+30. A elle convem creçer, e a my diminuir.
 31. Aquelle que de riba vem, sobre todos he; aquelle que he da terra, terreno he, e cousas terrenas falla: Aquelle que vem do Ceo, sobre todos he.
-32. E aquillo que vio, e ouvio, isso testifica; e ninguem recebe seu testemunho.
-33. Aquelle que seu testemunho recebeo, esse sellou que Deus he verdadeiro.
+32. E aquillo que vio, e ouvio, isso testifica; e ninguem reçebe seu testemunho.
+33. Aquelle que seu testemunho reçebeo, _esse_ sellou que Deus he verdadeiro.
 34. Porque aquelle que Deus enviou, as palavras de Deus falla; porque naõ [_lhe_] dá Deus o Espirito por medida.
 35. O Pae ama a o Filho, e todas as cousas deu em sua maõ.
-36. Aquelle que no Filho cre, tem vida eterna; mas aquelle que a o Filho he incredulo, naõ verá a vida, mas a ira de Deus permanece sobre elle.
+36. Aquelle que no Filho cre, tem vida eterna; mas aquelle que a o Filho he incredulo, naõ verá a vida, mas a ira de Deus permaneçe sobre elle.
 
 ## Capitulo IV.
 
