@@ -129,61 +129,61 @@ _1 Christo ensina a Nicodemus a cerca necessidade e maneira da regeneraçaõ. 14
 
 ## Capitulo IV.
 
-_1 Christo faz e bautiza mais discipulos em Judea do que Joaõ. 3 Foi {ilegivel} a Galilea passando por Samaria, e sendo cançado se assentou ali a par da {huajante / (boa/huã) fonte}. 7 Sua pratica com a Samaritana. 20 Informa a do verdadeiro modo de adorar. 26 E declara que elle era o Messias prometido. 28 Ella disto da parte a os Samaritanos que sahiraõ e vieraõ a elle. 31 Declara a seus discipulos qual era sua principal comida, e que o tempo da espiritual sega estava presente. 39 Muitos Samaritanos crem nelle assi pola palavra da mulher como principalmente pola propria ouvida. 43 Se torna a Cana de Galilea, aonde deu saude a o filho de hum regulo._
+_1 Christo faz e bautiza mais discipulos em Judea do que Joaõ. 3 Foi se d'ali a Galilea passando por Samaria, e sendo cançado se assentou ali a par da huã fonte. 7 Sua pratica com a Samaritana. 20 Informa a do verdadeiro modo de adorar. 26 E declara que elle era o Messias prometido. 28 Ella disto da parte a os Samaritanos que sahiraõ e vieraõ a elle. 31 Declara a seus discipulos qual era sua principal comida, e que o tempo da espiritual sega estava presente. 39 Muitos Samaritanos crem nelle assi pola palavra da mulher como principalmente pola propria ouvida. 43 Se torna a Cana de Galilea, aonde deu saude a o filho de hum regulo._
 
-1. De maneira que como o Senhor entendeo que os Phariseos ouviraõ, que Jesus fazia mais discipulos e bautizava que Joaõ.
+1. De maneira que como o Senhor entendeo que os Phariseos ouviraõ, que Jesus fazia mais disçipulos e bautizava que Joaõ.
 2. (Ainda que Jesus mesmo naõ bautizava, senaõ seus discipulos.)
 3. Deixou a Judea, e foi se outra vez a Galilea.
 4. E era mister que passasse por Samaria.
-5. Veio pois a huã cidade de Samaria, chamada Sichar, junto á herdade que Jacob deu a Joseph seu filho.
+5. Veio pois a huã çidade de Samaria, çhamada Sichar, junto á herdade que Jacob deu a Joseph seu filho.
 6. E estava ali a fonte de Jacob; Jesus, pois, cansado do caminho, se assentou assi a par da fonte: Era isto quasi ás (a)[Ou, _meio dia_] seis horas.
 7. Veio huã mulher de Samaria a tirar agoa; e Jesus lhe disse: Da me de beber.
-8. (Porque seus discipulos eraõ idos á cidade a comprar de comer.)
-9. E a mulher Samaritana lhe disse: Como, sendo tu, Judeo, me pedes a my de beber, que sou mulher Samaritana? (porque os Judeos naõ se com~unicaõ com os Samaritanos.)
-10. respondeo Jesus, e disselhe: Se tu o dom de Deus conheceras, e quem he o que te diz: Da me de beber; tu lhe pedirias a elle, e elle te daria a ty agoa viva.
-11. A mulher lhe disse: Senhor tu naõ tenhs com que a tirar, e o poço he fundo: Donde pois tens a agoa viva?
+8. (Porque seus disçipulos eraõ idos á çidade a comprar de comer.)
+9. E a mulher Samaritana lhe disse: Como, sendo tu, Judeo, me pedes a my de beber, que sou mulher Samaritana? porque os Judeos naõ se com~unicaõ com os Samaritanos.
+10. Respondeo Jesus, e disselhe: Se tu o dom de Deus conheçeras, e quem he o que te diz: Da me de beber; tu lhe pedirias a elle, e elle te daria a ty agoa viva.
+11. A mulher lhe disse: Senhor tu naõ tens com que a tirar, e o poço he fundo: Donde pois tens a agoa viva?
 12. Es tu maior que nosso pae Jacob, que nos deo este poço: D'oqual elle mesmo bebeo, e seus filhos, e seus gados?
-13. Respondeo Jesus, e disselhe: qualquer que d'esta agoa beber, ha de tornar a ter sede.
-14. Porem aquelle que beber da agoa que eu lhe der, nunca mais sede ha de ter: Mas a agoa que eu lhe der, se fara nelle fonte de agoa que salte pera vida eterna.
-15. Disse lhe a mulher: Senhor, da me d'esta agoa, peraque maiss sede naõ tenha, nem aqui venha a buscala.
-16. Jesus lhe disse: Vae, chama a teu marido, e vem cá.
+13. Respondeo Jesus, e disselhe: qualquer que d'esta agoa beber, ha de tornar a ter sede. Porem aquelle que beber da agoa que eu lhe der; nunca mais sede ha de ter:
+14. Mas a agoa que eu lhe der, se fara nelle fonte de agoa que salte pera vida eterna.
+15. Disse lhe a mulher: Senhor, da me d'esta agoa, peraque mais sede naõ tenha, nem aqui venha a buscala.
+16. Jesus lhe disse: Vae, çhama a teu marido, e vem cá.
 17. Respondeo a mulher, e disselhe: Naõ tenho marido, disselhe Jesus: Bem disseste, naõ tenho marido.
-18. Porque cinco maridos tiveste; e o que agora tens, naõ he teu marido; esto disseste com verdade.
-19. Disselhe a mulher: Senhor, parece me que es Propheta.
+18. Porque çinco maridos tiveste; e o que agora tens, naõ he teu marido; isto disseste com verdade.
+19. Disselhe a mulher: Senhor, pareçe me que es Propheta.
 20. Nossos paes neste monte adoráraõ, e vosoutros dizeis, que em Hierusalem he o lugar, aonde amister se adorar.
 21. Disselhe Jesus: Mulher, cre me que a hora vem quando, nem neste monte, nem em Hierusalem, a o Pae adorareis.
 22. Vosoutros adoraes o que naõ sabeis; nos outros adoramos o que sabemos: Porque dos Judeus he a salvaçaõ.
 23. Porem a hora vem, e agora he, quando os verdadeiros adoradores a o Pae adoraraõ em espirito e em verdade: Porque tambem o Pae a taes busca que o [_assi_] adorem.
-24. Deus he Espiritõ, e os que o adoraõ, em espirito e em verdade he muster que o adorem.
-25. Disselhe a mulher: Eu sei que ha de vir o Messias, que o Christo se chama; quando elle vier, ellenos declarará todas as cousas.
+24. Deus he Espiritõ, e os que o adoraõ, em espirito e em verdade he mister que o adorem.
+25. Disselhe a mulher: Eu sei que ha de vir o Messias, (que o Christo se çhama;) quando elle vier, elle nos declarará todas as cousas.
 26. Disselhe Jesus: Eu sou, o que com tigo estou fallando.
-27. E nisto vieraõ seus discipulos: E maravilharaõ se de que fallava com huma mulher: Mas nenhum delles lhe disse: Que perguntas? ou, que com ella estas fallando?
-28. Entonces deixou a mulher seu cantaro, e foi á cidade, e disse a aquelles homens:
-29. vinde, vede hum homem, que me disse tudo quanto tenho feito; este naõ he o Christo?
-30. Entonces sahiraõ d'a cidade, e vieraõ a elle.
-31. E entre tanto lhe rogavaõ os discipulos, dizendo, Rabby, come.
+27. E nisto vieraõ seus disçipulos: E maravilharaõ se de que fallava com huma mulher: Mas nenhum delles lhe disse: Que perguntas? ou, que com ella estas fallando?
+28. Entonçes deixou a mulher seu cantaro, e foi á çidade, e disse a aquelles homens:
+29. Vinde, vede hum homem, que me disse tudo quanto tenho feito; este naõ he o Christo?
+30. Entonçes sahiraõ d'a çidade, e vieraõ a elle.
+31. E entre tanto lhe rogavaõ os disçipulos, dizendo, Rabby, come.
 32. Porem elle lhes disse: huã comida tenho que comer, que vosoutros naõ sabeis.
-33. Entonces os discipulos diziaõ entre si: trouxelhe alguem de comer?
+33. Entonçes os disçipulos diziaõ entre si: trouxelhe alguem de comer?
 34. Disselhes Jesus: Minha comida he, que eu faça a vontade d'aquelle que me enviou, e que cumpra sua obra.
-35. Naõ dizeis vosoutros, que ainda ha quatro meses até a sega? vedesaqui vos digo: Levantae vossos olhos, e vede as terras; que ja estaõ brancas pera a sega.
-36. E o que sega, recebe galardaõ, e achega fruito pera vida eterna; pera que ambos se gozerm, assi o que seméa como tambem o que séga.
+35. Naõ dizeis vosoutros, que ainda ha quatro meses até a sega? vedesaqui vos digo: Levantae vossos olhos, e vede as terras, que ja estaõ brancas pera a sega.
+36. E o que sega, reçebe galardaõ, e açhega fruito pera vida eterna; pera que ambos se gozerm, assi o que seméa como tambem o que séga.
 37. Porque nisto he o dito verdadeiro; que hum he o que semea, e outro o que sega.
-38. Eu vos enviei a segar o que vosoutros naõ la{vrar}es; outros lavráraõ, e vosoutros entrastes em suas lavouras.
-39. E muitos dos Samaritanos d'aquella cidade creraõ nelle pola palavra da mulher, que dava testemunho, dizendo, a mi me disse tudo quanto tenho feito.
+38. Eu vos enviei a segar o que vosoutros naõ lavrastes; outros lavráraõ, e vosoutros entrastes em suas lavouras.
+39. E muitos dos Samaritanos d'aquella çidade creraõ nelle pola palavra da mulher, que dava testemunho, dizendo, a mi me disse tudo quanto tenho feito.
 40. Mas vindo os Samaritanos a elle, rogaraõ lhe que se ficasse com elles; e ficou se ali dous dias.
-41. E créraõ ainda muitos mais por sua palavra d'elle.
-42. E diziaõ á mulher: Ja naõ cremos por teu dito; porque nos mesmos [_o_] temos ouvido, e sabemos que verdadeiramente este he o salvador do mundo, o Christo.
+41. E créraõ ainda muitos mais por sua palavra.
+42. E diziaõ á mulher: Ja naõ cremos por teu dito; porque nos mesmos o temos ouvido, e sabemos que verdadeiramente este he o salvador do mundo, o Christo.
 43. E dous dias despois, sahio dali, e foise a Galilea.
 44. Porque o mesmo Jesus deu testemunho, que naõ tem o Propheta honra em sua patria.
-45. E como veio a Galilea, os Galileos o recebéraõ, vistas todas as cousas que em Hierusalem no dia da festa fizera; porque tambem elles tinhaõ vindo a o dia da festa.
+45. E como veio a Galilea, os Galileos o reçebéraõ, vistas todas as cousas que em Hierusalem no dia da festa fizera; porque tambem elles tinhaõ vindo a o dia da festa.
 46. Veio pois Jesus outra vez a Cana de Galilea, aonde da agoa fizera vinho: E estava ali hum (a)[Ou, _Regulo_] da corte del Rey, cujo filho estava enfermo em Capernaum.
-47. Este, como ouvio que Jesus vinha de Judea a Galilea; foi ter com elle, e rogavalhe que descendesse, e sarásse a seu filho, porque ja hia morrendo.
-48. Entonces Jesus lhe disse: Se sinaes e milagres naõ virdes, naõ aveis de crer.
-49. O da corte del Rey lhe disse: Senhor, descende, antes que meu filho morra.
+47. Este, como ouvio que Jesus vinha de Judea a Galilea; foi ter com elle, e rogavalhe que desçendesse, e sarásse a seu filho, porque ja hia morrendo.
+48. Entonçes Jesus lhe disse: Se sinaes e milagres naõ virdes, naõ aveis de crer.
+49. O da corte del Rey lhe disse: Senhor, desçende, antes que meu filho morra.
 50. Disselhe Jesus: Vae, teu filho vive. Creo o homem a a palavra que Jesus lhe disse, e foise.
 51. E indose elle ja, seus servos lhe sairaõ a o encontro, e lhe déraõ novas, dizendo: Teu filho vive.
-52. Entonces elle lhes perguntou, a que hora coméçara a estar melhor? e disseraõ lhe: Hont~e a as sete o deixou a febre.
-53. O pae, entonces, entendeo que aquella [_era_] mesma hora, quando Jesus lhe disse: Teu filho vive. E creo elle e toda sua casa:
+52. Entonçes elle lhes perguntou, a que hora coméçara a estar melhor? e disseraõ lhe: Hont~e a as sete o deixou a febre.
+53. O pae, entonçes, entendeo que aquella era mesma hora, quando Jesus lhe disse: Teu filho vive. E creo elle e toda sua casa.
 54. Este segundo sinal tornou Jesus a fazer quando veio de Judea a Galilea.
 
 ## Capitulo V.
