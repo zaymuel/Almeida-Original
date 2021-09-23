@@ -272,16 +272,16 @@ _1 Christo com cinco paens e dous peixes farta a cinco mil homens. 14 Querendo e
 28. E disseraõ lhe: Que faremos para obrarmos as obras de Deus?
 29. Respondeo Jesus, e disselhes: Esta he a obra de Deus, que creaes naquelle que elle enviou.
 30. Disseraõ lhe entonçes que sinal pois fazes tu, peraque o vejamos, e te creamos? que obras?
-31. Nossos pais coméraõ o Maña no deserto, como está escrito: Pam do Çeo lhes deu a comer.
+31. Nossos paes coméraõ o Maña no deserto, como está escrito: Pam do Çeo lhes deu a comer.
 32. E Jesus lhes disse: Em verdade, em verdade vos digo, que naõ vos deu Moyses o paõ do Çeo; mas meu Pae vos dá o verdadeiro paõ do Çeo.
-33. Porque o paõ de Deus he aquelle que desçende d'o Çeo {Ceo?}, e dá vida a o mundo.
+33. Porque o paõ de Deus he aquelle que desçende d'o Çeo, e dá vida a o mundo.
 34. E disseraõ lhe: Senhor, da nos sempre este pam.
 35. E Jesus lhes disse: Eu sou o paõ da vida; quem a my vier, nunca terá fome; e quem em my crer, ja mais naõ terá sede.
 36. Mas ja vos tenho dito, que me vistes, e naõ credes.
 37. Todo aquelle que o Pae me da, virá a my; e a o que a my vem, naõ o lançarei fora.
 38. Porque eu desçendi do Çeo, naõ para fazer minha vontade, mas a vontade daquelle que me enviou.
 39. E esta he a vontade do Pae que me enviou, que tudo quanto me der, naõ perca delle, mas que no dia derradeiro o resusçite.
-40. Esta he tambem a vontade d'aquelle que me enviou que tdo aquelle que vé a o Filho, e nelle cre, tenha vida eterna; e eu o resusçitarei no dia derradeiro.
+40. Esta he tambem a vontade d'aquelle que me enviou que todo aquelle que vé a o Filho, e nelle cre, tenha vida eterna; e eu o resusçitarei no dia derradeiro.
 41. Murmuravaõ entonçes d'elle os Judeos, porque tinha dito: Eu sou o paõ que desçendi do Çeo.
 42. E diziam: Naõ he este Jesus, o filho de Joseph, cujos pae e ma~e nosoutros conheçemos? como pois diz este: D'o Çeo tenho desçendido?
 43. E Jesus respondeo, e disselhes: Naõ murmureis entre vosoutros.
@@ -296,3 +296,21 @@ _1 Christo com cinco paens e dous peixes farta a cinco mil homens. 14 Querendo e
 52. Se alguem deste paõ comer, para sempre ha de viver: E o paõ que eu hei de dar, he minha carne, aqual hei de dar pola vida do mundo.
 53. Entonçes os Judeos contendiaõ entre si, dizendo, como nos pode este dar sua carne a comer?
 54. E Jesus lhes disse: Em verdade, em verdade vos digo, que se a carne d'o Filho do homem naõ comerdes, nem seu sangue beberdes, naõ tereis vida em vos mesmos.
+55. Que{m} come minha carne, e bebe meo sangue, tem vida eterna, e no dia derradeiro eu o resusçitarei.
+56. Porque minha carne verdadeiramente he comida; e meo sangue verdadeiramente he bebida.
+57. Quem comer minha carne, e beber meu sangue, em my permaneçe, e eu nelle.
+58. Assi como o Pae vivente me enviou, e eu vivo pelo Pae; assi tambem quem a my me comer, tambem por my ha de viver.
+59. Este he o paõ que do Çeo desçendeo; naõ como vossos paes, que coméraõ o mañá, e morreraõ; quem deste paõ comer, eternalmente ha de viver.
+60. Estas cousas disse na Synagoga, ensinando em Capernaum.
+61. E muitos de seus disçipulos, ouvindo [_isto,_] disseraõ: Dura he esta palavra; e quem a pode ouvir?
+62. E sabendo Jesus em si mesmo que seus disçipulos disto murmuravaõ, disselhes: Isto vos escandaliza?
+63. Pois [_que será_] se virdes a o Filho do homem, sobir a onde estava primeiro?
+64. O Espirito he o que dá vida, a carne para nada aproveita; as palavras que eu vos digo, Espirito e vida saõ.
+65. Mas haõ alguns de vosoutros, que naõ crem. Porque _bem_ sabia Jesus ja desdo prinçipio, quem eraõ os que naõ aviaõ de crer, e quem o avia de entregar.
+66. E dizia: por isso vos tenho dito, que ningu~e a my pode vir, se de meo Pae lhe naõ for dado.
+67. Desd'entaõ se tornavaõ muitos de seus disçipulos a tras, e ja naõ andavaõ com elle.
+68. Disse entonçes Jesus a os doze: naõ quereis vos vosoutros tambem ir?
+69. E respondeulhe Simaõ Pedro: Senhor, a quem iremos? de vida eterna tens tu as palavras.
+70. E _ja_ nos outros cremos, e conheçemos, que tu es o Christo, o Filho do Deus vivente.
+71. Jesus lhes respondeo: naõ vos escolhi eu doze; e hum de vosoutros he diabo?
+72. E fallava isto de Judas de {2} Simaõ Iscariota; porque este era o que o avia de entregar, que era hum dos doze.
