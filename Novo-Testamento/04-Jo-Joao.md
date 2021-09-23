@@ -264,3 +264,35 @@ _1 Christo com cinco paens e dous peixes farta a cinco mil homens. 14 Querendo e
 20. Mas elle lhes disse: Eu sou, naõ tenhaes medo.
 21. E elles o reçeberaõ de boa vontade no barco; e logo o barco çhegou á terra a onde hiaõ.
 22. O dia seguinte, vendo a companha que estava da outra banda do mar, que naõ avia ali mais que hum barquinho, em que seus disçipulos aviaõ entrado, e que Jesus naõ entrára com seus disçipulos naquelle barquinho, mas seos disçipulos sós se aviaõ ido:
+23. Mas outros barquinhos arribavaõ de Tiberias, perto do lugar aonde aviaõ comido o paõ, despois de o Senhor aver dado graças.
+24. Vendo pois a companha que Jesus naõ estava ali, nem seus disçipulos, entráraõ elles tambem n'os barquinhos, e vieraõ a Capernaum em busca de Jesus.
+25. E açhando o da outra banda do mar, disseraõ lhe: Rabbi, quando çhegaste cá?
+26. Respondeolhes Jesus, e disse: Em verdade, em verdade vos digo, que me buscaes, naõ polos sinaes que vistes, mas polo pam que comestes, e vos fartastes.
+27. Trabalhae, naõ [_pola_] comida que pereçe, mas [_pola_] comida que pera vida eterna permaneçe, aqual o Filho do homem vos dará: Porque a este assinalou Deus Pae.
+28. E disseraõ lhe: Que faremos para obrarmos as obras de Deus?
+29. Respondeo Jesus, e disselhes: Esta he a obra de Deus, que creaes naquelle que elle enviou.
+30. Disseraõ lhe entonçes que sinal pois fazes tu, peraque o vejamos, e te creamos? que obras?
+31. Nossos pais coméraõ o Maña no deserto, como está escrito: Pam do Çeo lhes deu a comer.
+32. E Jesus lhes disse: Em verdade, em verdade vos digo, que naõ vos deu Moyses o paõ do Çeo; mas meu Pae vos dá o verdadeiro paõ do Çeo.
+33. Porque o paõ de Deus he aquelle que desçende d'o Çeo {Ceo?}, e dá vida a o mundo.
+34. E disseraõ lhe: Senhor, da nos sempre este pam.
+35. E Jesus lhes disse: Eu sou o paõ da vida; quem a my vier, nunca terá fome; e quem em my crer, ja mais naõ terá sede.
+36. Mas ja vos tenho dito, que me vistes, e naõ credes.
+37. Todo aquelle que o Pae me da, virá a my; e a o que a my vem, naõ o lançarei fora.
+38. Porque eu desçendi do Çeo, naõ para fazer minha vontade, mas a vontade daquelle que me enviou.
+39. E esta he a vontade do Pae que me enviou, que tudo quanto me der, naõ perca delle, mas que no dia derradeiro o resusçite.
+40. Esta he tambem a vontade d'aquelle que me enviou que tdo aquelle que vé a o Filho, e nelle cre, tenha vida eterna; e eu o resusçitarei no dia derradeiro.
+41. Murmuravaõ entonçes d'elle os Judeos, porque tinha dito: Eu sou o paõ que desçendi do Çeo.
+42. E diziam: Naõ he este Jesus, o filho de Joseph, cujos pae e ma~e nosoutros conheçemos? como pois diz este: D'o Çeo tenho desçendido?
+43. E Jesus respondeo, e disselhes: Naõ murmureis entre vosoutros.
+44. Ninguem pode vir a my, se o Pae que me enviou, o naõ pouxar: E no dia derradeiro eu o resusçitarei.
+45. Escrito está n'os prophetas: E seraõ todos ensinados de Deus. _Assi que_, todo aquelle que do Pae o ouvio, e aprendeo, _esse_ vem a my.
+46. Naõ porque alguem aja visto a o Pae, senaõ aquelle que he de Deus; esse tem visto a o Pae.
+47. Em verdade, em verdade vos digo, que aquelle que em my cré, tem vida eterna.
+48. Eu sou o paõ da vida.
+49. Vossos paes coméraõ o maña no desérto, e morreraõ.
+50. Este he o pam que desçende do Çeo, pera que o que delle comer, naõ morra.
+51. Eu sou o paõ vivo, que desçendio d'o Çeo;
+52. Se alguem deste paõ comer, para sempre ha de viver: E o paõ que eu hei de dar, he minha carne, aqual hei de dar pola vida do mundo.
+53. Entonçes os Judeos contendiaõ entre si, dizendo, como nos pode este dar sua carne a comer?
+54. E Jesus lhes disse: Em verdade, em verdade vos digo, que se a carne d'o Filho do homem naõ comerdes, nem seu sangue beberdes, naõ tereis vida em vos mesmos.
