@@ -314,3 +314,45 @@ _1 Christo com cinco paens e dous peixes farta a cinco mil homens. 14 Querendo e
 70. E _ja_ nos outros cremos, e conheçemos, que tu es o Christo, o Filho do Deus vivente.
 71. Jesus lhes respondeo: naõ vos escolhi eu doze; e hum de vosoutros he diabo?
 72. E fallava isto de Judas de {2} Simaõ Iscariota; porque este era o que o avia de entregar, que era hum dos doze.
+
+## Capitulo VII.
+
+_1 Andado Jesus em Galilea amoestaõ o seus irmaos, de ir a Jerusalem per{a} festa das cabanas. 6 O que entonces nega. 10 Mas segue despois em secreto. 14 Ensina no Templo, e defende sua doutrina, como tambem a maravilha feita d'elle no Sabado. 25 Diversas opinioens que o povo delle tinha. 30 Alguns procuraõ prendelo, mas naõ podiaõ. 32 Os Principes dos Sacerdotes e os Phariseos mandaõ servidores que o prendessem. 33 Ameaça a os incredulos Judeos que despois o naõ acharaõ. 37 Convida a todos os sedentes, e promete o Espirito Sancto a os fieis. 40 Donde avia dissensaõ na companha. 45 Os servidores se tornaõ sem trazelo preso, e louvaõ sua doctrina delle. 47 Indignados os Phariseos injuriaõ a Christo e a povo. 50 Nicodemus os redargui, e avendo dissensaõ entre elles foraõ se._
+
+1. E passadas estas cousas, andava Jesus em Galilea; que ja naõ queria andar em Judea: por quanto os Judeos procuravaõ de o matar.
+2. E estava ja perto o dia da festa das cabanas dos Judeos.
+3. E disseraõ lhe seus irmaõs: Passa te daqui e vaete a Judea, pera que tambem teus disçipulos vejaõ tuas obras que fazes.
+4. Que ninguem que procura ser nomeado, faz alguã cousa em seçrecto; se estas cousas fazes, manifesta te a o mundo.
+5. Porque nem ainda seus irmaõs criaõ nelle.
+6. Disselhes entonçes Jesus: meu tempo ainda naõ he vindo; mas vosso tempo sempre está prestes.
+7. Naõ vos pode o mundo aborreçer a vosoutros, mas a my me aborreçe; porque delle dou testemunho, que suas obras saõ más.
+8. Vosoutros sobi a esta festa: Eu naõ subo ainda a esta festa, porque ainda meu tempo naõ he cumprido.
+9. E avendolhes dito isto, ficouse em Galilea.
+10. Mas avendo seus irmaõs ja sobido, entonçes sobio elle tambem á festa, naõ manifestamente, mas como em secreto.
+11. E buscavaõ o os Judeos no dia da festa, e diziaõ: Aonde esta elle?
+12. E avia grande murmuraçaõ delle na companha, porque huns diziaõ: bom he; e outros diziaõ: Naõ, antes engana a a as companhas.
+13. Mas ninguem fallava delle abertamente, com medo dos Judeos.
+14. E no meio da festa sobio Jesus a o Templo, e ensinava.
+15. E maravilhavaõ se os Judeos, dizendo, como sabe este letras, naõ as avendo aprendido?
+16. Respondeolhes Jesus, e disse: Minha doutrina naõ he minha, senaõ d'aquelle que me enviou.
+17. Quem quiser fazer sua vontade, da mesma doutrina conheçerá, se vem de Deus, ou se eu fallo de my mesmo.
+18. Quem falla de si mesmo, honra propria busca; mas quem busca a honra daquelle que o enviou, esse he verdadeiro, e naõ ha nelle injustiça.
+19. Naõ vos deu Moyses a ley, e nenhum de vosoutros faz a ley? porque me procuraes matar?
+20. Respondeo a companha, e disse: O demonio tens; quem te procura matar?
+21. Respondeo, Jesus e disselhes: Huã obra fiz, e todos vos marabilhaes.
+22. Por isso; Moyses vos deu a çir{c}uncisaõ (naõ porque de Moyses seja, mas dos paes:) e no Sabado çircunçidaes a o homem.
+23. Se o homem em Sabado reçebe a çircunçisaõ, peraque a ley de Moyses naõ seja quebrantada; indignaes vos comigo, porque em Sabado farei a todo hum homem?
+24. Naõ julgueis segundo o que de fora apareçe, mas julgae justo juizo.
+25. Diziaõ entonçes alguns dos de Hierusalem: Naõ he este a o que buscaõ pera o matar?
+26. E eisaqui falla publicamente, e naõ lhe dizem nada: Quem sabe se verdadeiramente tem entendido os Prinçipes, que este seja o Christo?
+27. Mas este, bem sabemos d'onde he: Porem quando o Christo vier, ninguem saberá d'onde seja.
+28. Entonçes clamava Jesus no Templo, ensinando, e dizendo: E a my me conheçeis, e sabeis d'onde sou; Porem eu naõ tenho vindo de my mesmo; mas aquelle que me enviou, he verdadeiro, a o qual vosoutros naõ conheceis.
+29. Porem eu o conheço; porque delle sou, e elle me enviou.
+30. Entonçes procuravaõ prendelo, mas ninguem lançou nelle a maõ, porque ainda sua hora naõ era vinda.
+31. E da companha, muitos créraõ nelle; e diziaõ: Quando o Christo vier fará mais sinaes do que os que este fez?
+32. Ouviraõ os Phariseos que a companha murmurava delle estas cousas? E mandara'o os Príncipes dos Sacerdotes, e os Phariseos, servidores que o prendessem.
+33. E Jesus lhes disse: Ainda hum pouco de tempo estarei com vosco, e entaõ me irei a aquelle que me enviou.
+34. Buscarmeheis, e naõ [_me_] açhareis; e a onde eu estiver, vosoutros naõ podeis vir.
+35. Entonçes disseraõ os Judeos entre si: Aonde se irá este, que naõ o açhemos? Porventura ir se ha a os esparzidos entre os Gregos? e a ensinar a os Gregos?
+36. Que dito he este que disse: Buscarmeheis, e naõ [_me_] açhareis; e aonde eu estiver, vosoutros naõ podeis vir?
+37. Porem no ultimo dia grande da festa, se pós Jesus empé, e clamou, dizendo, se alguem tem sede, venha a my e beba.
