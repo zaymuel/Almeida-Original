@@ -296,7 +296,7 @@ _1 Christo com cinco paens e dous peixes farta a cinco mil homens. 14 Querendo e
 52. Se alguem deste paõ comer, para sempre ha de viver: E o paõ que eu hei de dar, he minha carne, aqual hei de dar pola vida do mundo.
 53. Entonçes os Judeos contendiaõ entre si, dizendo, como nos pode este dar sua carne a comer?
 54. E Jesus lhes disse: Em verdade, em verdade vos digo, que se a carne d'o Filho do homem naõ comerdes, nem seu sangue beberdes, naõ tereis vida em vos mesmos.
-55. Que{m} come minha carne, e bebe meo sangue, tem vida eterna, e no dia derradeiro eu o resusçitarei.
+55. Quem come minha carne, e bebe meo sangue, tem vida eterna, e no dia derradeiro eu o resusçitarei.
 56. Porque minha carne verdadeiramente he comida; e meo sangue verdadeiramente he bebida.
 57. Quem comer minha carne, e beber meu sangue, em my permaneçe, e eu nelle.
 58. Assi como o Pae vivente me enviou, e eu vivo pelo Pae; assi tambem quem a my me comer, tambem por my ha de viver.
@@ -313,16 +313,16 @@ _1 Christo com cinco paens e dous peixes farta a cinco mil homens. 14 Querendo e
 69. E respondeulhe Simaõ Pedro: Senhor, a quem iremos? de vida eterna tens tu as palavras.
 70. E _ja_ nos outros cremos, e conheçemos, que tu es o Christo, o Filho do Deus vivente.
 71. Jesus lhes respondeo: naõ vos escolhi eu doze; e hum de vosoutros he diabo?
-72. E fallava isto de Judas de {2} Simaõ Iscariota; porque este era o que o avia de entregar, que era hum dos doze.
+72. E fallava isto de Judas de {2} Simaõ I{'}scariota; porque este era o que o avia de entregar, que era hum dos doze.
 
 ## Capitulo VII.
 
-_1 Andado Jesus em Galilea amoestaõ o seus irmaos, de ir a Jerusalem per{a} festa das cabanas. 6 O que entonces nega. 10 Mas segue despois em secreto. 14 Ensina no Templo, e defende sua doutrina, como tambem a maravilha feita d'elle no Sabado. 25 Diversas opinioens que o povo delle tinha. 30 Alguns procuraõ prendelo, mas naõ podiaõ. 32 Os Principes dos Sacerdotes e os Phariseos mandaõ servidores que o prendessem. 33 Ameaça a os incredulos Judeos que despois o naõ acharaõ. 37 Convida a todos os sedentes, e promete o Espirito Sancto a os fieis. 40 Donde avia dissensaõ na companha. 45 Os servidores se tornaõ sem trazelo preso, e louvaõ sua doctrina delle. 47 Indignados os Phariseos injuriaõ a Christo e a povo. 50 Nicodemus os redargui, e avendo dissensaõ entre elles foraõ se._
+_1 Andado Jesus em Galilea amoestaõ o seus irmaos, de ir a Jerusalem pera festa das cabanas. 6 O que entonces nega. 10 Mas segue despois em secreto. 14 Ensina no Templo, e defende sua doutrina, como tambem a maravilha feita d'elle no Sabado. 25 Diversas opinioens que o povo delle tinha. 30 Alguns procuraõ prendelo, mas naõ podiaõ. 32 Os Principes dos Sacerdotes e os Phariseos mandaõ servidores que o prendessem. 33 Ameaça a os incredulos Judeos que despois o naõ acharaõ. 37 Convida a todos os sedentes, e promete o Espirito Sancto a os fieis. 40 Donde avia dissensaõ na companha. 45 Os servidores se tornaõ sem trazelo preso, e louvaõ sua doctrina delle. 47 Indignados os Phariseos injuriaõ a Christo e a povo. 50 Nicodemus os redargui, e avendo dissensaõ entre elles foraõ se._
 
 1. E passadas estas cousas, andava Jesus em Galilea; que ja naõ queria andar em Judea: por quanto os Judeos procuravaõ de o matar.
 2. E estava ja perto o dia da festa das cabanas dos Judeos.
 3. E disseraõ lhe seus irmaõs: Passa te daqui e vaete a Judea, pera que tambem teus disçipulos vejaõ tuas obras que fazes.
-4. Que ninguem que procura ser nomeado, faz alguã cousa em seçrecto; se estas cousas fazes, manifesta te a o mundo.
+4. Que ninguem que procura ser nomeado, faz alguã cousa em seçreto; se estas cousas fazes, manifesta te a o mundo.
 5. Porque nem ainda seus irmaõs criaõ nelle.
 6. Disselhes entonçes Jesus: meu tempo ainda naõ he vindo; mas vosso tempo sempre está prestes.
 7. Naõ vos pode o mundo aborreçer a vosoutros, mas a my me aborreçe; porque delle dou testemunho, que suas obras saõ más.
@@ -330,7 +330,7 @@ _1 Andado Jesus em Galilea amoestaõ o seus irmaos, de ir a Jerusalem per{a} fes
 9. E avendolhes dito isto, ficouse em Galilea.
 10. Mas avendo seus irmaõs ja sobido, entonçes sobio elle tambem á festa, naõ manifestamente, mas como em secreto.
 11. E buscavaõ o os Judeos no dia da festa, e diziaõ: Aonde esta elle?
-12. E avia grande murmuraçaõ delle na companha, porque huns diziaõ: bom he; e outros diziaõ: Naõ, antes engana a a as companhas.
+12. E avia grande murmuraçaõ delle na companha, porque huns diziaõ: bom he; e outros diziaõ: Naõ, antes engana a as companhas.
 13. Mas ninguem fallava delle abertamente, com medo dos Judeos.
 14. E no meio da festa sobio Jesus a o Templo, e ensinava.
 15. E maravilhavaõ se os Judeos, dizendo, como sabe este letras, naõ as avendo aprendido?
@@ -341,18 +341,34 @@ _1 Andado Jesus em Galilea amoestaõ o seus irmaos, de ir a Jerusalem per{a} fes
 20. Respondeo a companha, e disse: O demonio tens; quem te procura matar?
 21. Respondeo, Jesus e disselhes: Huã obra fiz, e todos vos marabilhaes.
 22. Por isso; Moyses vos deu a çir{c}uncisaõ (naõ porque de Moyses seja, mas dos paes:) e no Sabado çircunçidaes a o homem.
-23. Se o homem em Sabado reçebe a çircunçisaõ, peraque a ley de Moyses naõ seja quebrantada; indignaes vos comigo, porque em Sabado farei a todo hum homem?
+23. Se o homem em Sabado reçebe a çircunçisaõ, peraque a ley de Moyses naõ seja quebrantada; indignaes vos comigo, porque em Sabado sarei a todo hum homem?
 24. Naõ julgueis segundo o que de fora apareçe, mas julgae justo juizo.
 25. Diziaõ entonçes alguns dos de Hierusalem: Naõ he este a o que buscaõ pera o matar?
 26. E eisaqui falla publicamente, e naõ lhe dizem nada: Quem sabe se verdadeiramente tem entendido os Prinçipes, que este seja o Christo?
 27. Mas este, bem sabemos d'onde he: Porem quando o Christo vier, ninguem saberá d'onde seja.
-28. Entonçes clamava Jesus no Templo, ensinando, e dizendo: E a my me conheçeis, e sabeis d'onde sou; Porem eu naõ tenho vindo de my mesmo; mas aquelle que me enviou, he verdadeiro, a o qual vosoutros naõ conheceis.
+28. Entonçes clamava Jesus no Templo, ensinando, e dizendo: E a my me conheçeis, e sabeis d'onde sou; Porem eu naõ tenho vindo de my mesmo; mas aquelle que me enviou, he verdadeiro, a o qual vosoutros naõ conheçeis.
 29. Porem eu o conheço; porque delle sou, e elle me enviou.
 30. Entonçes procuravaõ prendelo, mas ninguem lançou nelle a maõ, porque ainda sua hora naõ era vinda.
 31. E da companha, muitos créraõ nelle; e diziaõ: Quando o Christo vier fará mais sinaes do que os que este fez?
-32. Ouviraõ os Phariseos que a companha murmurava delle estas cousas? E mandara'o os Príncipes dos Sacerdotes, e os Phariseos, servidores que o prendessem.
+32. Ouviraõ os Phariseos que a companha murmurava delle estas cousas: E mandaraõ os Prínçipes dos Sacerdotes, e os Phariseos, servidores que o prendessem.
 33. E Jesus lhes disse: Ainda hum pouco de tempo estarei com vosco, e entaõ me irei a aquelle que me enviou.
 34. Buscarmeheis, e naõ [_me_] açhareis; e a onde eu estiver, vosoutros naõ podeis vir.
 35. Entonçes disseraõ os Judeos entre si: Aonde se irá este, que naõ o açhemos? Porventura ir se ha a os esparzidos entre os Gregos? e a ensinar a os Gregos?
 36. Que dito he este que disse: Buscarmeheis, e naõ [_me_] açhareis; e aonde eu estiver, vosoutros naõ podeis vir?
 37. Porem no ultimo dia grande da festa, se pós Jesus empé, e clamou, dizendo, se alguem tem sede, venha a my e beba.
+38. Quem cré em my, como a Escritura diz, rios de agoa viva correráõ de seu ventre.
+39. E isto disse elle do Espirito que aviaõ de reçeber aquelles que nelle cressem: Porque ainda o Espirito sancto naõ era, por quanto ainda Jesus naõ era glorificado.
+40. Entonçes muitos da companha, ouvindo este dito, diziaõ: Verdadeiramente este he o Propheta.
+41. Outros diziaõ: Este he o Christo; mas alguns diziaõ: De Galilea ha de vir o Christo?
+42. Naõ diz a Escritura que da semente de David, e da aldea de Betlehem, donde era David, ha de vir o Christo?
+43. Assi que avia dissensaõ na companha por amor delle.
+44. E alguns delles o queriaõ prender, mas ninguem lançou maõ delle.
+45. E viéraõ os servidores a os Pontifiçes e Phariseos: e elles lhes disseraõ: Porque o naõ trouxestes?
+46. Respondéraõ os servidores: Nunca hom~e nenh~u fallou como este homem.
+47. Entonçes lhes respondéraõ os Phariseos: Tambem vosoutros estaes enganados?
+48. Por ventura creu nelle algum dos Prinçipes ou dos Phariseos?
+49. Senaõ este vulgo, que naõ sabe a ley, malditos saõ:
+50. Disselhes Nicodemus o que a elle de noite viera, que era hum delles.
+51. Julga nossa ley a o homem, sem primeiro o ouvir, e d'elle o que tem feito entender?
+52. Respondéraõ elles, e disseraõ lhe: Naõ és tu tambem Galileo? esquadrinha, e vé, que nunca de Galilea se alevantou Propheta.
+53. E tornáraõ se cada um para sua caza.
