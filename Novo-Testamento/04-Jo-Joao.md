@@ -372,3 +372,29 @@ _1 Andado Jesus em Galilea amoestaõ o seus irmaos, de ir a Jerusalem pera festa
 51. Julga nossa ley a o homem, sem primeiro o ouvir, e d'elle o que tem feito entender?
 52. Respondéraõ elles, e disseraõ lhe: Naõ és tu tambem Galileo? esquadrinha, e vé, que nunca de Galilea se alevantou Propheta.
 53. E tornáraõ se cada um para sua caza.
+
+## Capitulo VIII.
+
+_1 Christo pelamanhaã ensina no templo. 3 O sucesso da mulher adultera. 12 Manifesta ser elle a luz do mundo. 13 E defende se contra os Phariseos assi com seu proprio testemunho como com o de seu Pae. 21 Diz a os Judeos que de balde lhe buscaraõ, e que em seus pecados haõ de morrer{,} se naõ n'elle crem. 25 Promete a os que nelle crem noticia da verdade, e liberdade do serviço de pecado. 37 Demostra que os incredulos Judeos naõ saõ filhos de Abraham, nem de Deus, mas do demonio. 46 Reprende a incredulidade d'elles. 48 Sobre o que os Judeos o injuriaõ. 50 Testifica que Abraham vio seu dia, e que era antes que Abraham fosse, 59 Por isso o querem apedrejar._
+
+1. E foi se Jesus a o monte das oliveiras.
+2. E pelamanhaã tornou a o Templo: E todo o povo veio a elle. E assentando se, os ensinava.
+3. Entonçes lhe trouxeraõ os Escribas e Phariseos huã mulher tomada em adulterio: E pondo a no meio,
+4. Disseraõ lhe: Mestre, esta mulher foi tomada no mesmo feito, adulterando: {ilegível}
+5. E na ley nos mandou Moyses apedrejar a as taes, tu pois que dizes?
+6. Mas isto diziaõ elles, atentando o, para o poderem acusar: Mas inclinando se Jesus para baixo, pos se a escrever com o dedo no çhaõ.
+7. E como perseverassem, perguntandolhe, endereitouse, e disselhes: Aquelle que de vosoutros sem pecado está, {_esse_ prº {próprio?} a apedreje} seja o primeiro que pedra alguã contra ella atire.
+8. E tornandose a inclinar para baixo, escrevia no çhaõ.
+9. Ouvindo pois _elles_ [_isto,_] e redarguidos da consçiençia, foraõ se saindo hum a hum, começando dos mais velhos até os derradeiros, e ficou se Jesus, e a mulher que no meio estáva.
+10. E endereitando se Jesus, e naõ vendo a ningu~e mais que a mulher, disselhe: Mulher, aonde estáõ os que te acusavaõ? ninguem te condenou?
+11. E disse ella: ninguem, Senhor. Entonçes lhe disse Jesus: Nem eu te condéno; vae te, e naõ peques mais.
+12. E falloulhes Jesus outra vez, dizendo, eu sou a luz do mundo; quem me seguir, naõ andará em trevas, mas terá lume de vida.
+13. Entonçes lhe disséraõ os Phariseos: Tu de ty mesmo dás testemunho, teu testemunho naõ he verdadeiro.
+14. Respondeo Jesus, e disselhes: Ainda que eu de my mesmo dou testemunho, meo testemunho he verdadeiro; porque sei d'onde vim, e pará onde vou: porem vosoutros naõ sabeis donde venho, nem para onde vou.
+15. Vosoutros segundo a carne julgaes; eu naõ julgo a ninguem.
+16. E se tambem julgo, meu juizo he verdadeiro: Porque naõ sou só, mas eu, e o Pae que me enviou.
+17. porem tambem em vossa ley está escrito, que o Testemunho de dous homens he verdadeiro.
+18. Eu sou o que de my mesmo dou testemunho, e dá testemunho de my o Pae que me enviou.
+19. Disséraõ lhe pois: Aonde está seu Pae? respondeo Jesus: Nem a my me conheçeis, nem a meo Pae: Se vos a my me conheçesseis, tambem a meo Pae conheçeriéis.
+20. Éstas palavras fallou Jesus na thesouraria, estando ensinando no Templo; e ningu~e o prendeo, porque ainda sua hora naõ éra vinda.
+21. E disselhes Jesus outra vez: Eu me vou e buscarmeéis; mas em vosso peccado morreréis: Aonde eu vou, naõ podeis vosoutros vir.
