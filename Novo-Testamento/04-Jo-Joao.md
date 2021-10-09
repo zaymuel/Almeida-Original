@@ -375,12 +375,12 @@ _1 Andado Jesus em Galilea amoestaõ o seus irmaos, de ir a Jerusalem pera festa
 
 ## Capitulo VIII.
 
-_1 Christo pelamanhaã ensina no templo. 3 O sucesso da mulher adultera. 12 Manifesta ser elle a luz do mundo. 13 E defende se contra os Phariseos assi com seu proprio testemunho como com o de seu Pae. 21 Diz a os Judeos que de balde lhe buscaraõ, e que em seus pecados haõ de morrer{,} se naõ n'elle crem. 25 Promete a os que nelle crem noticia da verdade, e liberdade do serviço de pecado. 37 Demostra que os incredulos Judeos naõ saõ filhos de Abraham, nem de Deus, mas do demonio. 46 Reprende a incredulidade d'elles. 48 Sobre o que os Judeos o injuriaõ. 50 Testifica que Abraham vio seu dia, e que era antes que Abraham fosse, 59 Por isso o querem apedrejar._
+_1 Christo pelamanhaã ensina no templo. 3 O sucesso da mulher adultera. 12 Manifesta ser elle a luz do mundo. 13 E defende se contra os Phariseos assi com seu proprio testemunho como com o de seu Pae. 21 Diz a os Judeos que de balde lhe buscaraõ, e que em seus pecados haõ de morrer se naõ n'elle crem. 25 Promete a os que nelle crem noticia da verdade, e liberdade do serviço de pecado. 37 Demostra que os incredulos Judeos naõ saõ filhos de Abraham, nem de Deus, mas do demonio. 46 Reprende a incredulidade d'elles. 48 Sobre o que os Judeos o injuriaõ. 50 Testifica que Abraham vio seu dia, e que era antes que Abraham fosse, 59 Por isso o querem apedrejar._
 
 1. E foi se Jesus a o monte das oliveiras.
 2. E pelamanhaã tornou a o Templo: E todo o povo veio a elle. E assentando se, os ensinava.
 3. Entonçes lhe trouxeraõ os Escribas e Phariseos huã mulher tomada em adulterio: E pondo a no meio,
-4. Disseraõ lhe: Mestre, esta mulher foi tomada no mesmo feito, adulterando: {ilegível}
+4. Disseraõ lhe: Mestre, esta mulher foi tomada no mesmo feito, adulterando:
 5. E na ley nos mandou Moyses apedrejar a as taes, tu pois que dizes?
 6. Mas isto diziaõ elles, atentando o, para o poderem acusar: Mas inclinando se Jesus para baixo, pos se a escrever com o dedo no çhaõ.
 7. E como perseverassem, perguntandolhe, endereitouse, e disselhes: Aquelle que de vosoutros sem pecado está, {_esse_ prº {próprio?} a apedreje} seja o primeiro que pedra alguã contra ella atire.
@@ -393,8 +393,46 @@ _1 Christo pelamanhaã ensina no templo. 3 O sucesso da mulher adultera. 12 Mani
 14. Respondeo Jesus, e disselhes: Ainda que eu de my mesmo dou testemunho, meo testemunho he verdadeiro; porque sei d'onde vim, e pará onde vou: porem vosoutros naõ sabeis donde venho, nem para onde vou.
 15. Vosoutros segundo a carne julgaes; eu naõ julgo a ninguem.
 16. E se tambem julgo, meu juizo he verdadeiro: Porque naõ sou só, mas eu, e o Pae que me enviou.
-17. porem tambem em vossa ley está escrito, que o Testemunho de dous homens he verdadeiro.
+17. Porem tambem em vossa ley está escrito, que o Testemunho de dous homens he verdadeiro.
 18. Eu sou o que de my mesmo dou testemunho, e dá testemunho de my o Pae que me enviou.
-19. Disséraõ lhe pois: Aonde está seu Pae? respondeo Jesus: Nem a my me conheçeis, nem a meo Pae: Se vos a my me conheçesseis, tambem a meo Pae conheçeriéis.
+19. Disséraõ lhe pois: Aonde está teu Pae? respondeo Jesus: Nem a my me conheçeis, nem a meo Pae: Se vos a my me conheçesseis, tambem a meo Pae conheçeriéis.
 20. Éstas palavras fallou Jesus na thesouraria, estando ensinando no Templo; e ningu~e o prendeo, porque ainda sua hora naõ éra vinda.
 21. E disselhes Jesus outra vez: Eu me vou e buscarmeéis; mas em vosso peccado morreréis: Aonde eu vou, naõ podeis vosoutros vir.
+22. Diziaõ entonçes os Judeos: Hase de matar a si mesmo, porque diz: Aonde eu vou, vosoutros naõ podeis vir?
+23. E dizialhes: Vosoutros sois de baixo, eu sou de riba; vosoutros sois deste mundo, eu naõ sou deste mundo.
+24. Por isso vos disse, que em vossos peccados morrereis; porque se naõ crerdes que eu o sou, em vossos peccados morrereis.
+25. E diziaõ lhe: Tu quem és? entonçes Jesus lhes disse: O que desdo prinçipio ja tambem vos tenho dito.
+26. Muitas cousas tenho que dizer e julgar de vosoutros: Mas verdadeiro he aquelle que me enviou; e eu o que delle tenho ouvido, isso fallo a o mundo.
+27. Mas naõ entendiaõ que lhes falava do Pae.
+28. Disselhes pois Jesus: Quando levantardes a o Filho do homem, entaõ entenderéis que eu o sou, e [_que_] nada faço de my mesmo: Mas isto digo assi como o Pae me ensinou.
+29. Porque aquelle que me enviou, comigo está: Naõ me tem o Pae deixado só; porque sempre faço o que a elle lhe agrada.
+30. Fallando elle éstas cousas, créraõ muitos nelle.
+31. E dizia Jesus a os Judeos que nelle aviaõ crido: Se vosoutros em minha palavra permaneçerdes, sereis verdadeiramente meos disçipulos.
+32. E conheçéreis a verdade, e a verdade vos libertará.
+33. E respondéraõ lhe: Semente de Abraham somos, e nunca a niguem servimos; como dizes tu, livres sereis?
+34. Respondeo lhes Jesus: Em verdade, em verdade vos digo, que todo aquelle que faz peccado, he servo do peccado.
+35. E o servo naõ fica em casa para sempre, mas o Filho pera sempre fica.
+36. Assi que, se o Filho vos libertar, verdadeiramente sereis livres.
+37. Bem sei que sois semente de Abraham; Porem Procuraes matarme, porque minha palavra naõ cabe em vosoutros.
+38. Eu, o que junto a meu Pae vi, fallo; e vosoutros, o que junto a vosso pae vistes, fazeis.
+39. Respondéraõ, e disséraõ lhe: Nosso pae he Abraham. Disselhes Jesus: Se filhos de Abraham foreis, as obras de Abraham fizéreis.
+40. Porem agora procuraes matarme, homem que vos tenho fallado a verdade que de Deus tenho ouvido: Naõ fez isto Abraham.
+41. Vosoutros fazeis as obras de vosso pae. Disseraõ lhe pois: nosoutros naõ somos naçidos de fornicaçaõ; hum Pae temos, [_a saber_] Deus.
+42. Jesus entonçes lhes disse: Se Deus fora vosso Pae, verdadeiramente me amareis: Porque eu de Deus tenho saido, e vindo; que naõ tenho vindo de my mesmo, porem elle me enviou.
+43. Porque naõ reconheçeis minha lingoagem? [_he_] porquanto naõ podeis ouvir minha palavra.
+44. Vosoutros de pae diabo sois, e os desejos de vosso pae quereis cumprir: Elle homiçida foi desdo prinçipio, e naõ permaneçeo na verdade; Porque he mentiroso, e pae da mentira.
+45. Porem a my, que [_vos_] digo a verdade, naõ me credes.
+46. Quem de vosoutros me convençe de peccado? e se vos digo a verdade, porque me naõ credes?
+47. Quem he de Deus, as palavras de Deus ouve; portanto as naõ ouvis vosoutros, porquanto naõ sois de Deus.
+48. Respondéraõ entaõ os Judeos, e disséraõ lhe: Naõ dizemos nos mui bem, que es Samaritano, e tens o demonio?
+49. Respondeo Jesus: Eu naõ tenho o demonio, antes hónro a meu Pae; Mas vosoutros me deshonraes a my.
+50. Nem taõ pouco busco minha honra, ha quem a busque, e a julgue.
+51. Em verdade, em verdade vos digo, que quem minha palavra guardar, nunca pera sempre a morte verá.
+52. Entonçes lhe dissseraõ os Judeos: Agora conheçemos que tens o demonio: Morreo Abraham, e os Prophetas; e dizes tu: Quem minha palavra guardar, nunca pera sempre a morte gostará?
+53. Es tu maior que nosso pae Abraham, o qual morreo, e morréraõ os Prophetas: Quem te fazes a ty mesmo?
+54. Respondeo Jesus: Se eu a my mesmo me honro, nada minha honra he; meo Pae que vosoutros dizeis que he vosso Deus, he o que me honra.
+55. Porem vos naõ o conheçeis, mas eu o conhéço: E se digo, que o naõ conhéço, serei, como vosoutros, mentiroso; mas conhéço o, e guardo sua palavra.
+56. Abraham vosso pae se alegrou com desejo de vér meu dia; e vio o, e alegrouse.
+57. Disseraõ lhe entonçes os Judeos: Ainda naõ tens çincoënta annos, e viste a Abrahaõ?
+58. Disselhes Jesus: Em verdade, em verdade vos digo, que Antes que Abraham fosse, sou eu.
+59. Tomáraõ entonçes pedras para lhe atirár~e, mas Jesus se encobrio, e sahio do Templo, e atravessando assi por meyo delles, se passou.
